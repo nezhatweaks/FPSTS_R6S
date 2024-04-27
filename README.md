@@ -1,4 +1,4 @@
-# +FPS THE SERIES EP.2 RAINBOW SIX SIEGE
+# +FPS THE SERIES EP.3 RAINBOW SIX SIEGE
 วิธีเพิ่ม FPS และลด Input Lag ในเกม Rainbow Six Siege [+FPSTS EP.3] 
 
 # PBREG
